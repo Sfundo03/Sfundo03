@@ -1,6 +1,6 @@
 # 👋 Hey there, I'm Sfundo Zuma! 
 
-💻 *Software Developer Student* | 🎓 *ICT Applications Development (2nd Year)* | 🔒 *Cybersecurity Enthusiast*  
+💻 *Software Developer Student* | 🎓 *ICT Applications Development (3rd Year)* | 🔒 *Cybersecurity Enthusiast*  
 
 ---
 
