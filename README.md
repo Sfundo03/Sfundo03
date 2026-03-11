@@ -1,4 +1,4 @@
-# 👋 Hey there, I'm Sfundo Zuma! 
+# 👋 Hey there, I'm Bongumusa Zuma! 
 
 💻 *Software Developer Student* | 🎓 *ICT Applications Development (3rd Year)* | 🔒 *Cybersecurity Enthusiast*  
 
